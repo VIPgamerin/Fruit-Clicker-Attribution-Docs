@@ -19,4 +19,4 @@ Thank you to all the authors for their contributions!
 
 © 2025 VIP Studios.
 
-You are free to share this attribution file as long as it is not modified in any way.
+You are not allowed to modify ir share this file in any way posible. 
